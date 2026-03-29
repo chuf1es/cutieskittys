@@ -4,6 +4,8 @@
 
 imso tuff guys pls c*h  WITH ME .PLEASE i BeGG YAL
 
+broken ing btw ( i only spek esp:°<<<)
+
 you follow me me love yiu 😘😘😘
 
 ![lele.](https://files.catbox.moe/604bia.png)
