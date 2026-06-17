@@ -1,13 +1,7 @@
 <div align="center">
-<img src="https://files.catbox.moe/jf27cm.png" width="350">
-<img src="https://files.catbox.moe/9ilxsk.png" width="400">
+<img src="https://file.garden/ajMohSI9WQJnWZD3/503%20sin%20t%C3%ADtulo_20260617190101.png" width="500">
 
 
-${\color{#A77DBD}\textsf{awesome}}$ ${\color{#F260B0}\textsf{alt}}$ ${\color{#A77DBD}\textsf{acc}}$ <img src="https://files.catbox.moe/itxhsi.png" width="30">  ${\color{#FEEEF7}\textsf{go check my main}}$
+${\color{#4C3347}\textsf{awesome}}$ ${\color{#F7DAB8}\textsf{alt}}$ ${\color{#4C3347}\textsf{acc}}$   ${\color{#F7DAB8}\textsf{go check my main}}$
 
-${\color{#F260B0}\textsf{follow back}}$ ${\color{#FEEEF7}\textsf{+}}$ ${\color{#A77DBD}\textsf{spam follow block if is}}$ ${\color{#F260B0}\textsf{unwanted}}$
-
-${\color{#FEEEF7}\textsf{thsi is still a wip guys}}$
-
-<img src="https://files.catbox.moe/bvwkfn.png" width="400">
-<img src="https://files.catbox.moe/o2bspn.png" width="350">
+<img src="https://file.garden/ajMohSI9WQJnWZD3/513%20sin%20t%C3%ADtulo_20260617190127.png" width="200">
